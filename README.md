@@ -1,2 +1,3 @@
 # numalg_proba
 Szabó Domonkos Sándor
+jauikzhsjfugvdb nmkíléajoisuzdgukjvíabnskhuidghkjvíasbkdhigzhjkvAÍSBifgzuvÍJHKABSDfugísudzhfvÍKUASDhfgvkAJSDHfGKIUZSADHVFGFkdufVECG ÍD KHouzeDSGo8ziesgfolidzg fPIUGDOzg asozdfvKAsgfpzteif g SZUDG
